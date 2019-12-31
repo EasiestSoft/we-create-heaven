@@ -41,8 +41,6 @@ Let me give you an example. There is one person, most people know his name, that
 
 Why do I say that Trump has relatively more free will? Because he does a lot of things differently, compared to his political opponents, he is special. If you hate him or love him, then you already know what makes him special
 
-Of course Trump has very little free will compared to me
-
 A person with more free will means that she/he is willing to do things that most people are not used to, or is willing to do things that she/he is not used to
 -------------
 
@@ -84,5 +82,4 @@ There are three kinds of `eternal life`
 
   However, the space-time in physics is difficult to understand, it doesn't matter, you just follow me, I'm the greatest science philosopher ever, let us explore the mystery of eternal life together
 
-
-King Eca 2019-12-26
+2019-12-29 [King Eca](../stars/a-king-eca/)
