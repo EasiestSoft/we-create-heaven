@@ -50,7 +50,7 @@ Now let `King Eca` come to a conclusion:
 
 > If there is a heaven above the sky, then only those who like to do things in different ways have a chance to enter it, because only they have a chance to find it
 
-King Eca was born for the truth
+King Eca is born for truth
 ---------------
 
 But there is no heaven above the sky. The dead are really dead, no heaven or hell is waiting for the dead. The only way for anyone who wants to enter heaven is to follow King Eca to create the greatest country on earth, and I call `this greatest country` simply `heaven`
@@ -82,4 +82,4 @@ There are three kinds of `eternal life`
 
   However, the space-time in physics is difficult to understand, it doesn't matter, you just follow me, I'm the greatest science philosopher ever, let us explore the mystery of eternal life together
 
-2019-12-29 [King Eca](../stars/a-king-eca/)
+2019-12-29 [King Eca](https://www.easiestsoft.com/stars/a-king-eca/)
