@@ -4,7 +4,7 @@ We create real heaven on Earth
 The is the guide on how to create a real heaven on Earth
 
 - [Humans have very little free will](./humans-have-very-little-free-will.md)
-- [Humans have no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has.md)
+- [Humans have almost no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has.md)
 
 ---
 
@@ -40,4 +40,4 @@ There are three kinds of `eternal life`
 
   However, the space-time in physics is difficult to understand, it doesn't matter, you just follow me, <!--I'm the greatest science philosopher ever, --> let us explore the mystery of eternal life together
 
-2019-12-29 [King Eca](https://www.easiestsoft.com/stars/a-king-eca/)
+2019-12-29 [King Eca](https://easiestsoft.com/stars/a-king-eca/)

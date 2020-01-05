@@ -1,9 +1,9 @@
-Humans have no free will, but the universe has
+Humans have almost no free will, but the Universe has
 ======
 
-That is, compared with the free will of the universe, humans have almost no free will
+That is, compared with the free will of the Universe, humans have almost no free will
 
-The deep meainging of free will: having the will to improve everything
+The deep meaning of free will: having the will to improve everything
 ----------
 
 A person with free will means that she is always willing to do things that others and hereself are not used to, but this kind of thing does not happen by default because no one wants to always make people(includeing herself) unhappy or uncomfortable, all of us locked up by others and our past, so we have littel free will
@@ -14,7 +14,7 @@ As another example, even if people know that standing at study / work is good fo
 
 Here I introduce the deep meaning of free will. A person with free will not only means that she will try to do everything differently, but further means that she wants to improve everything. **Doing things differently is the way, and improving everything is the goal**
 
-Please note that I used the word **everything** instead of **something** and we will pratice/increase our free will in everything
+Please note that I used the word **everything** instead of **something** and we will practice/increase our free will in everything
 
 King Eca is the man with the most free will
 ---------
@@ -84,4 +84,4 @@ https://voat.co/v/whatever/3594317
 
 -->
 
-2020-01-04 [King Eca](https://www.easiestsoft.com/stars/a-king-eca/)
+2020-01-04 [King Eca](https://easiestsoft.com/stars/a-king-eca/)
