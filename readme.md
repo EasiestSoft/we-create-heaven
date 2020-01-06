@@ -3,8 +3,8 @@ We create real heaven on Earth
 
 The is the guide on how to create a real Heaven on Earth
 
-- [Humans have very little free will](./humans-have-very-little-free-will.md)
-- [Humans have almost no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has.md)
+- [Humans have very little free will](./humans-have-very-little-free-will/index.md)
+- [Humans have almost no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has/index.md)
 
 ---
 
