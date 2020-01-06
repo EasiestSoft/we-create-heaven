@@ -1,4 +1,4 @@
-Humans have almost no free will, but the Universe has
+Humans almost do not have free will, but the Universe does
 ======
 
 That is, compared with the free will of the Universe, humans have almost no free will

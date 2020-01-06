@@ -1,21 +1,27 @@
 We create real heaven on Earth
 ============
 
-The is the guide on how to create a real heaven on Earth
+The is the guide on how to create a real Heaven on Earth
 
 - [Humans have very little free will](./humans-have-very-little-free-will.md)
 - [Humans have almost no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has.md)
 
 ---
 
-My name is King Eca, I'm 46 years old and I decided to do something good for humanity before it was too late
+My name is King Eca, I'm 46 and I decided to do something good for humanity before it was too late
 
 King Eca is born for truth
 ---------------
 
-There is no heaven above the sky. The dead are really dead, no heaven or hell is waiting for the dead. The only way for anyone who wants to enter heaven is to follow King Eca to create the greatest country on earth, and I call `this greatest country` simply `heaven`
+- Since I was 10, I knew my mission is to discover the truth and tell it to people
+- I will never lie
+- Religions may still be valuable to some people, but for me they are not enough
+- I respect science, modern physics basically tells the truth, but it's not enough for me
 
-I am born for truth. I tried for more than two decades to find a master worth following, unfortunately, I failed, I couldn't find a master with more free will. If there is no math book in the world and you have to learn math, then the only way is to invent math yourself, and then you will be the greatest mathematician
+I tried for more than two decades to find a master worth following, unfortunately, I failed, I couldn't find a master with more free will. If there is no math book in the world and you have to learn math, then the only way is to invent math yourself, and then you will be the greatest mathematician
+
+There is no Heaven above the sky. The dead are really dead, no Heaven or hell is waiting for the dead. The only way for anyone who wants to enter Heaven is to follow King Eca to create the greatest country on earth, and I call `this greatest country` simply `Heaven`
+
 
 Three kinds of "eternal life"
 ----------------
@@ -32,7 +38,7 @@ There are three kinds of `eternal life`
 
 - Fake `eternal life`
 
-  In the distant future, through biotechnology and medicine, it is possible for a person to survive for a long time. It is difficult to archive eternal life in this way, even if it does, it is some kind of cancer that will eventually be destroyed
+  In the distant future, through biotechnology and medicine, it is possible for a person to survive for a long time. It is impossible to archive eternal life in this way, even if it does, it is some kind of cancer that will eventually be destroyed
 
 - [Connected eternal life](./humans-have-no-free-will-but-the-universe-has.md)
 
