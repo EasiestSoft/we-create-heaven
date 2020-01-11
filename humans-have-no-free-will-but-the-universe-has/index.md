@@ -6,7 +6,7 @@ That is, compared with the free will of the Universe, humans have almost no free
 The deep meaning of free will: having the will to improve everything
 ----------
 
-A person with free will means that she is always willing to do things that others and hereself are not used to, but this kind of thing does not happen by default because no one wants to always make people(includeing herself) unhappy or uncomfortable, all of us locked up by others and our past, so we have littel free will
+A person with free will means that she is always willing to do things that others and herself are not used to, but this kind of thing does not happen by default because no one wants to always make people(including herself) unhappy or uncomfortable, all of us locked up by others and our past, so we have little free will
 
 For example, Darwin was the `greatest` evolutionary scientist of the time, but he couldn't say it himself, he had better say that he was a little stupid, so later scientists might be confused: `Was Darwin really stupid?` Of course, Darwin is not stupid, but others are
 
@@ -48,7 +48,7 @@ Unless all of us die, no one will die
 
 If you can't imagine this true eternal life, then think about our body, if one cell in our body dies, it has no effect on life, all cells in our body are almost the same
 
-Maybe you can’t accept eternal life is posibble, but I believe it ’s true, because someone did it, the `someone` is the universe we live in
+Maybe you can’t accept eternal life is possible, but I believe it ’s true, because someone did it, the `someone` is the universe we live in
 
 This is a universe with complete free will
 ------------------
@@ -63,7 +63,7 @@ Why can atoms reach eternal life and humans can only reach it in dreams?
 
 Because compared to the universe, humans have almost no free will, and humans are even reluctant to accept this fact (oh, they have free will to delete this post)
 
-Let us build a real heaven on Earth
+Why people inevitably die
 ---------------
 
 If many people are willing to increase their free will, then we may build a real heaven on earth, it is a greatest country composed of more free will people, but it is not enough to call it the greatest country, I Call it heaven

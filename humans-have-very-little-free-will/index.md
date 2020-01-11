@@ -53,13 +53,13 @@ Now let `King Eca` conclude:
 Creatures have no free will in evolution
 -------------
 
-The environment and past experiences determine the behaviours of creatures, so I don't think creatures have free will
+The environment and past experiences determine the behaviours of creatures, so I don't think creatures have much free will
 
-If the creature has free will, the creature will do things that are not currently used to for a long-term evolutionary goal. For example, to evolve into humans millions of years later, orangutans are now actively practising upright walking...but we have never observed such instances
+If the creature has much free will, the creature will do things that are not currently used to for a long-term evolutionary goal. For example, to evolve into humans millions of years later, orangutans are now actively practising upright walking...but we have never observed such instances
 
 All the facts we know today show that the evolution of creatures is determined by environment, the changing environment forces the creature to change their behaviours, causing them to evolve in time. This shows that **creatures have no free will in evolution**
 
-**Evolution is the most important thing for all creatures** (most people probably don't realize it, don't forget that you don't have free will:), can you imagine that you still live like an orangutan? Creatures do not have free will in evolution, then **basically, we can say that creatures do not have free will**, simply that **creatures do not have free will**
+**Evolution is the most important thing for all creatures** (most people probably don't realize it, don't forget that you don't have free will:), can you imagine that you still live like an orangutan? Creatures do not have free will in evolution, then **basically, we can say that creatures do not have free will**<!--, simply that **creatures do not have free will**-->
 
 AggressivelySweet said:
 

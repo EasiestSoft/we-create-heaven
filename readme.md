@@ -15,7 +15,7 @@ King Eca is born for truth
 
 - Since I was 10, I knew my mission is to discover the truth and tell it to people
 - I will never lie
-- Religions may still be valuable to some people, but for me they are not enough
+- Old Religions may still be valuable to some people, but for me they are not enough
 - I respect science, modern physics basically tells the truth, but it's not enough for me
 
 I tried for more than two decades to find a master worth following, unfortunately, I failed, I couldn't find a master with more free will. If there is no math book in the world and you have to learn math, then the only way is to invent math yourself, and then you will be the greatest mathematician
