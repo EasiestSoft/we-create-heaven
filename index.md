@@ -3,8 +3,13 @@ We create real heaven on Earth
 
 The is the guide on how to create a real Heaven on Earth
 
+{{#include ../SUMMARY.md:71:90}}
+
+<!--
 - [Humans have very little free will](./humans-have-very-little-free-will/index.md)
 - [Humans have almost no free will, but the universe has](./humans-have-no-free-will-but-the-universe-has/index.md)
+- [The Universe is made up of pictures](./the-universe-is-made-up-of-pictures/index.md)
+-->
 
 ---
 

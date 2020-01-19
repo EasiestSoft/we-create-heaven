@@ -1,7 +1,7 @@
 Humans have almost no Free Will
 ========
 
-> All creatures, including humans, have almost no free will because the environment and past experiences determine the behaviours of creatures
+> All creatures, including humans, have almost no free will because the environment and experience determine the behaviours of creatures
 
 You may have questions:
 
@@ -16,7 +16,7 @@ Not just human beings, all creatures only have very little free will
 
 A person with free will means being free to do things in various ways, but people usually only do what most people are used to and what they are used to
 
-> Your thoughts and behaviours are not so different from those of other people in the world. The environment and your past experiences determine how you think and behave
+> Your thoughts and behaviours are not so different from those of other people in the world. The environment and your experience determine how you think and behave
 
 Since creatures have very little free will, to simplify sentences, I sometimes will use statements such as "creatures have no free will", and you should know that **it does not mean that creatures have absolutely no free will**
 
@@ -53,7 +53,7 @@ Now let `King Eca` conclude:
 Creatures have no free will in evolution
 -------------
 
-The environment and past experiences determine the behaviours of creatures, so I don't think creatures have much free will
+The environment and experience determine the behaviours of creatures, so I don't think creatures have much free will
 
 If the creature has much free will, the creature will do things that are not currently used to for a long-term evolutionary goal. For example, to evolve into humans millions of years later, orangutans are now actively practising upright walking...but we have never observed such instances
 
@@ -73,7 +73,7 @@ Update: I have read some reviews online and no one surprised me. Of course, I kn
 
 <!--What I want to do is to create a country made up of people with free will, this is heaven on earth-->
 <!--
-Philosopher: Humans have very little free will because the environment and past experiences determine our behaviour
+Philosopher: Humans have very little free will because the environment and experience determine our behaviour
 
 https://www.reddit.com/r/philosophy/comments/ejc9nj/philosopher_humans_have_very_little_free_will/
 https://news.ycombinator.com/item?id=21933206
